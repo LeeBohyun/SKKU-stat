@@ -1,1 +1,0 @@
-# SL-skku-stat
